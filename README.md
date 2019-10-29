@@ -1,6 +1,4 @@
 Michaela Gualano
-Mamaroneck, New York
-Michaelamgualano@gmail.com
 Eductation 
 Lehigh University/ Bachelor of Business and Economics 
 Mamaroneck High School 
